@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+My favorite emojis:
+1. :neckbeard:
+2. :penguin:
